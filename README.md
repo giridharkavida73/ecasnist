@@ -1,1 +1,1 @@
-# ecasnist
+ Welcome to Emerging Computers Arena (ECA)'s official website! Find event highlights, registration guides, and details about our patrons and board members. Stay updated with our latest initiatives and connect with our tech community. Celebrate innovation and excellence with ECA!
